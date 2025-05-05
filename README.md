@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pennyamanda12@gmail.com**
 
-- ⚡ Fun fact **I´m a person who likes a help**
+- ⚡ Fun fact **I've been playing basketball since I was a kid — it's taught me teamwork, discipline, and how to think fast under pressure.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
